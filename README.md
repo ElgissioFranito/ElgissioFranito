@@ -1,6 +1,7 @@
 # Hi !
 
-![coucou!!!](https://www.google.com/url?sa=i&url=https%3A%2F%2Fdepositphotos.com%2F97410534%2Fstock-photo-woman-hand-up-gesturing-high.html&psig=AOvVaw136pG-MLGH5hNP4VPfYa8s&ust=1653780572282000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCPD5kpDcgPgCFQAAAAAdAAAAABAJ)
+![it's just a joke 😂!!!](http://veraicona.hypotheses.org/files/2015/09/tumblr_nk6p2mbhzl1rpco88o1_400.gif)
 ## My name is ***Elgissio Franito RANDRIAMANARINA***
 ### I'm a student in **web development.**
 
+😁 This animation is just for fun!
